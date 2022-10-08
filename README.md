@@ -41,6 +41,7 @@ Shivam Gupta (Delhi).
 
 Sanchit Khare (Aligarh).
 
+Akshit Batra (Yamuna Nagar)
 
 Aniket Sood (Chandigarh).
 
